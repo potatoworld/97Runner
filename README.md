@@ -7,23 +7,41 @@ I came accross this 4runner for sale about 2 hours away from my house and instan
 Over the course of my ownership I had to:
 
 -Replace front lower ball joints 
+
 -Replace front brake rotors and pads
+
 -Flush and replace all fluids
+
 -Replace entire exhaust from headers back
+
 -Replace belts and filters
+
 -Strip, repaint and refinish all 4 wheels
+
 -Paint correct and Ceramic Coat entire vehicle
+
 -Replace seals on all windows, including front windshield
+
 -Replace all halogen bulbs with LED
+
 -Un-sieze and rebuild rear windshield motor
+
 -Strip entire frame of surface rust and old oil spray, recoat with rust converting primer and rubberized undercoating spray
+
 -Strip and repaint front bumper
+
 -Install aftermarket driving/fog lights
+
 -Remove headliner and carpet, deep clean and dye black
+
 -Replace leaky fuel filler neck
+
 -Replace handbrake assembly 
+
 -Repair/replace interior components like cupholders
+
 -Remove dash, replace bulbs with LED's and restore plastic 
+
 -Repair interior clock diode
 
 
